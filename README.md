@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Xyuan03
+- 👀 I’m interested in Yoga, Mountain Hiking
+- 🌱 I’m currently learningabout self-care
